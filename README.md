@@ -1,0 +1,1 @@
+# Primary-competition-visual-DigiCow-Farmer-Training-Adoption-Challenge
